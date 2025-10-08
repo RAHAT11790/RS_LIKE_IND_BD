@@ -1,0 +1,1 @@
+# RS_LIKE_IND_BD
